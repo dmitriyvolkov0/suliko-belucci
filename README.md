@@ -1,1 +1,1 @@
-# suliko-belucci - ресторан в Воронеже
+# Suliko Belucci - ресторан в Воронеже
